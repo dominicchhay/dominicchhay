@@ -9,7 +9,7 @@ Most of my projects are private (not ready ready for people to see 👀)
 **⚡ Fun Facts ⚡**
 - I like cats, coffee, games and anime.
 - I love playing sports as well especially volleyball!
-- I'm obsessed with spiderman right now since "Brand new day" just came out.
+- I'm obsessed with Spiderman right now since "Brand New Day" just came out.
 
 <!--
 **dominicchhay/dominicchhay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
