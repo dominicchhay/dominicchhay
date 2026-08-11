@@ -5,6 +5,7 @@ I like designing and building things for fun but I 🤍LOVE🤍 building things 
 Most of my projects are private (not ready ready for people to see 👀)
 
 🔭 Currently working on multiple projects. Most notable of which is a clothing site for an independent brand.
+📫 Reach me at: https://www.linkedin.com/in/dominic-chhay
 
 **⚡ Fun Facts ⚡**
 - I like cats, coffee, games and anime.
